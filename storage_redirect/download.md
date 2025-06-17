@@ -1,4 +1,41 @@
-# Download
+# ff
+ff beta
+jdhrh
+ndmdm
+udjen
+jrjrnr
+hend
+dhrjjd
+hejej
+heje
+yqu4nt
+hsjrme
+ini jekeoe
+msok rg4be
+usnene7iebrnrke
+f7dumdh.dhshs
+hdruutu
+turuuduruud
+u3y37du
+uususysusu2w7wyw
+
+6dy
+dydydy
+dydy
+dydy
+dydy
+dydy
+dydyfyuuruuuuu
+u
+yyyeyryyryeueueuururururuururuudurururururuu
+ududydudydyryduru
+dyduryryryryryryry
+rydy
+dy
+
+
+
+w66e6e6eDownload
 
 **Requirement:** rooted Android 6.0+ device
 
